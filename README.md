@@ -1,0 +1,1 @@
+python boshlang'ich tushinchalar
